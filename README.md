@@ -1,10 +1,4 @@
-Hi, I'm SirChillington.
-
-I have essentially no knowledge on coding.
-
+Heya, I'm Chillington
+I have like no knowledge on coding
 I'm just here to download stuff.
-
-My discord is sirchillington if you want to reach me.
-
-Um, that's it, I guess.
-I'm chill.
+My discord is sirchillington if you wanna to reach me
